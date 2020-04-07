@@ -1,1 +1,1 @@
-# http-apps.americanas.com.br.-
+# http-apps.americanas.com.br.
